@@ -1,1 +1,1 @@
-# equipe-do-trabalho
+# Equipe-do-Trabalho
